@@ -1,0 +1,1 @@
+# IfIKnewThenWutWasHappeningInTheCornerOfMyEyeParapheralVisionApril2017IWouldveHelpedUOutWhyDidntUAsk
